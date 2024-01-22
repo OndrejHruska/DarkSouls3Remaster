@@ -1,3 +1,3 @@
 Ondřej Hruška, Jan Štork
 
-Pracovali jsem na zadání od: Šimona Špačka a Honzi Kováče
+Pracovali jsem na zadání od: Šimona Špačka a Honzi Kováče -> Hodnocení za 1
